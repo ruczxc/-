@@ -1,2 +1,2 @@
-# -
-常在池边走，哪能不湿鞋
+# introduction
+all in 为主，输了吃土
